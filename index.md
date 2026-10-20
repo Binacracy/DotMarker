@@ -1,1 +1,0 @@
-Binneezy Kids - toddler dot marker activity books: https://www.etsy.com/shop/BinneezyKids
